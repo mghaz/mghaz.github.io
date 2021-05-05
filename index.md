@@ -1,1 +1,1 @@
- [Ottoman Historian](https://columbia.academia.edu/MatthewGhazarian) | [Podcaster](https://www.ottomanhistorypodcast.com/search/label/Matthew%20Ghazarian) | [Digital Humanist](http://vh.dimaterialist.net/) | About
+ [Historian](https://columbia.academia.edu/MatthewGhazarian) | [Podcaster](https://www.ottomanhistorypodcast.com/search/label/Matthew%20Ghazarian) | [Digital Humanist](http://vh.dimaterialist.net/) | About
